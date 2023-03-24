@@ -1,1 +1,1 @@
-# blazzixx.github.io
+# blazixx.github.io
